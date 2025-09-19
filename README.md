@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ha5him97
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning javascript
+- 🌱 I’m currently learning what i don't know
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me my insta id _haxhim_ayyoob_
 - 😄 Pronouns: ...
