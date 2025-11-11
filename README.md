@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning what i don't know
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me my insta id _haxhim_ayyoob_
+- 📫 How to reach me my insta id "_haxhim_ayyoob_"
 - 😄 Pronouns: hashim
 - ⚡ Fun fact: i am a student
 
